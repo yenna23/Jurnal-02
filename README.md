@@ -1,1 +1,1 @@
-# Tugas-Praktikum-IMA.coba
+# Jurnal 02
